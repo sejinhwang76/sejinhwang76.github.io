@@ -1,4 +1,4 @@
-# the cult apothecary | 異敎徒藥劑師
+# the cult apothecary
 
 Sejin Hwang, BSP, BCGP, MBA
 
