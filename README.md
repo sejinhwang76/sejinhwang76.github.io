@@ -2,4 +2,4 @@
 
 Sejin Hwang, BSP, BCGP, MBA
 
-[Link to Notion Pages](https://www.notion.so/sejinhwang76/the-cult-apothecary-29a469a3e910404e82a218d117d57b55)
+[Link to Notion Pages](https://legendary-mollusk-0bf.notion.site/the-Cult-Apothecary-c74dc96018924acdbacf35682c26f712)
